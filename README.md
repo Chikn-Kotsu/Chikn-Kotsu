@@ -1,8 +1,8 @@
-## Hiya!
+## Hi
 snapdragonsnapdragonsnapdragonsnapdrahon
-![image alt](https://static.wikia.nocookie.net/cookierunkingdom/images/0/02/Snapdragon_illustration.png/revision/latest?cb=20230617032602)
 
 i like snapdragonnnejsnnsksk!!!!!
+
 
 ## hmm the fandoms i am in:
 
