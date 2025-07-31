@@ -1,8 +1,8 @@
-## Hi
+## hiya
 snapdragonsnapdragonsnapdragonsnapdrahon
-
 i like snapdragonnnejsnnsksk!!!!!
-dw conductor & hat kid i still like yall 🎀🫶
+i like conductor and hatkidhshsi too
+
 
 ## hmm the fandoms i am in:
 
