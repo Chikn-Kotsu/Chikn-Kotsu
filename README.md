@@ -1,6 +1,6 @@
 ## Hiya!
 
-![image alt](https://tenor.com/view/snapdragon-cookie-snapdragon-baby-cookie-run-kingdom-dragon-gif-11346616231927664916)
+![image alt](https://static.wikia.nocookie.net/cookierunkingdom/images/0/02/Snapdragon_illustration.png/revision/latest?cb=20230617032602)
 
 i like snapdragonnnejsnnsksk!!!!!
 
