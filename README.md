@@ -3,8 +3,11 @@
 ᵇᵒˡᵈ ᶠᵒʳ ᵃ ᵈʳᵃᵍᵒⁿ ᵗʰᵃᵗ ʰᵃˢⁿ'ᵗ ᵉᵛᵉⁿ ᵍʳᵒʷⁿ ˢᶜᵃˡᵉˢ ʸᵉᵗᵎ
 
 ᯓ★ : HUGE Snapdragon cookie and Hat kid fan!! : ,,
+
 ᯓ★ : dni ai supporters : ,,
+
 ᯓ★ : isfp  ,,
+
 ' multifandom ,,
 
 
