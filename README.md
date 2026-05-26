@@ -1,15 +1,4 @@
-ᵇᵒˡᵈ ᶠᵒʳ ᵃ ᵈʳᵃᵍᵒⁿ ᵗʰᵃᵗ ʰᵃˢⁿ'ᵗ ᵉᵛᵉⁿ ᵍʳᵒʷⁿ ˢᶜᵃˡᵉˢ ʸᵉᵗᵎ
 
-ᯓ★ : HUGE Snapdragon cookie and Hat kid fan!! : ,,
-
-ᯓ★ : dni ai "artist" supporters : ,,
-
-ᯓ★ : isfp  ,,
-
-' multifandom ,,
-
-
-n1 snapdragon fan idk
 
 snapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnapdragonsnap
 ![image alt](https://static.wikia.nocookie.net/cookierunkingdom/images/9/93/Sprite_snapdragon_default.png/revision/latest?cb=20230608105653)
